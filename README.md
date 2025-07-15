@@ -1,1 +1,1 @@
-CalCOps (in development)
+CalCOps (‼️IN DEVELOPMENT‼️)
